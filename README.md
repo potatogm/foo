@@ -1,8 +1,12 @@
-# Code Test, **FAKE DATA**
-* sLezUuyop_ZeQLUqAw
-* FxOpb-yop_ZeTCcqAw
-* pSm3BOyop_Zf5VAqAw
-* DXFyEOyop_Zf_YUqAw
-* sbsQRuyop_ZfYu8qAw
-* 9H5qROyop_ZbirYqAw
-* 8k36cuyop_ZbgesqAw
+# Network Activation Code
+* ZSptDeyop_ReLh4qAw
+* QzHrPuyop_ZeqB4qAw
+* 2RWAMOyop_ZeCnQqAw
+* 9sS7eeyop_ZeBEUqAw
+* E0_STeyop_ZfUHAqAw
+* 8HDyDeyop_ZfwyAqAw
+* _Regb-yop_Za-U8qAw
+* sE4YJ-yop_ZaZMMqAw
+* uVM0fuyop_ZbirYqAw
+* tlrbF-yop_ZbgWcqAw
+* LeH8Euyop_ZbTq4qAw
